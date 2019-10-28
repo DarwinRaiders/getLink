@@ -1,1 +1,1 @@
-http://vamoseconomizar.cf/dashboard/functions/loginn.php
+https://vamoseconomizar.cf/dashboard/functions/loginn.php
