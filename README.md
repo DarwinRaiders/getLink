@@ -1,1 +1,1 @@
-https://ame-ofertabaratas.cf/dashboard/functions/loginn.php
+http://vamoseconomizar.cf/dashboard/functions/loginn.php
