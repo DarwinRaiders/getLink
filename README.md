@@ -1,1 +1,1 @@
-https://vamoseconomizar.cf/dashboard/functions/loginn.php
+https://ame-pagarpouco.com/dashboard/functions/loginn.php
